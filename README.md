@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kyeonsol.
 - 👀 I’m interested in ...IT develop projects.
-- 🌱 I’m currently learning ...PM and algorithm.
+- 🌱 I’m currently learning ...how to be a great PM and algorithm.
 - 💞️ I like ...Green tea latte, tasty things(tteokbokki, maratang, etc...), to be a leader, and games!
 - ⚡ Fun fact: ...I really like to listen to various genre of musics.
 
